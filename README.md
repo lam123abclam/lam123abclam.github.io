@@ -1,1 +1,1 @@
-# lam123abclam.github.io
+# for fun only
